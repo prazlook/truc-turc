@@ -1,1 +1,1 @@
-téléchargez le fichier.zip
+téléchargez le release
